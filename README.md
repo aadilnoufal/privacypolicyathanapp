@@ -1,5 +1,5 @@
 Privacy Policy for Athan App
-Effective Date: [Insert Date]
+Effective Date: 9/3/2025
 
 Thank you for using Athan App! Your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your personal information when you use our mobile application.
 
